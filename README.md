@@ -1,0 +1,5 @@
+- Hi, I’m Stela ^_^
+- I love music
+- My favorite song is "set fire to the rain" by Adele
+- I love my dog
+- My lucky number is 7
